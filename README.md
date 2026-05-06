@@ -29,4 +29,4 @@
 ---
 
 ## 🌐 Connect with Me
-- LinkedIn: muhammad-tamim1
+- LinkedIn: https://www.linkedin.com/in/muhammad-hassan-9bb39a3ba
